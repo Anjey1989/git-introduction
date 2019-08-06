@@ -1,2 +1,2 @@
 Edmunds Pūce
-Arturs Plataiskalns 2
+Arturs Plataiskalns 3
