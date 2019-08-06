@@ -1,1 +1,2 @@
 Edmunds Pūce
+Arturs Plataiskalns
