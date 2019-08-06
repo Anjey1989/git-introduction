@@ -1,2 +1,1 @@
 Edmunds Pūce
-Dagnis Skurbe
